@@ -4,7 +4,7 @@
 
 **Building scalable web platforms, trading automation, and high-performance digital products**
 
-6+ years of experience delivering secure, fast, and business-driven solutions for startups, agencies, and enterprises worldwide.
+10+ years of experience delivering secure, fast, and business-driven solutions for startups, agencies, and enterprises worldwide.
 
 </div>
 
